@@ -1,0 +1,1 @@
+https://www.homofaciens.de/technics-base-circuits-encoder-disc_en.htm
